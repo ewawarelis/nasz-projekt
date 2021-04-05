@@ -1,1 +1,1 @@
-# nasz-projekt
+# wir-sind-diamant
